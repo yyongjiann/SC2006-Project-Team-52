@@ -1,1 +1,1 @@
-# SW2006-Project-Team-52
+# SC2006-Project-Team-52
